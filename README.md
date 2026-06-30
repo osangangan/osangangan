@@ -5,7 +5,7 @@ Writer, curator, editor
 A collection of my published commentary, creative nonfiction, and music journalism.
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
-  *Creative nonfiction. Earlier version published as an epilogue to Patrick Odimnfe's Embracing Multidimensionality (2025)*
+  *Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's Embracing Multidimensionality (2025)*
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
   *Creative nonfiction piece published on Brittle Paper (2020)*
 * **[Qhairo: On the Rise](https://www.thelineofbestfit.com/features/interviews/qhairo-on-the-rise)**
