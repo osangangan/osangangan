@@ -1,5 +1,5 @@
 ## Hi, I'm Iretomiwa Sharon Omodeinde
-Writer, curator, editor
+Writer, curator, editor.
 
 ### Selected Essays
 A collection of my published commentary, creative nonfiction, and music journalism.
