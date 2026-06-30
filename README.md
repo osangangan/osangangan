@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi, I'm Iretomiwa Sharon Omodeinde
+
+Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan.
 
 <!--
 **osangangan/osangangan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
