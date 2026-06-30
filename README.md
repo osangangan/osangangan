@@ -5,11 +5,13 @@ Writer, curator, editor
 A collection of my published commentary, creative nonfiction, and music journalism.
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
-* *Creative nonfiction. Earlier version published as an epilogue to Patrick Odimnfe's Embracing Multidimensionality (2025)*
+  *Creative nonfiction. Earlier version published as an epilogue to Patrick Odimnfe's Embracing Multidimensionality (2025)*
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
-* *Creative nonfiction. Published on Brittle Paper (2020)*
+  *Creative nonfiction piece published on Brittle Paper (2020)*
 * **[Qhairo: On the Rise](https://www.thelineofbestfit.com/features/interviews/qhairo-on-the-rise)**
-* *Magazine feature article written for The Line of Best Fit, UK (2020)*
+  *Magazine feature article written for The Line of Best Fit, UK (2020)*
+* **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
+  *Music promotional article written for The Urban Central, NG (2020)*
 
 ### Professional History
 Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan (Nigeria).
