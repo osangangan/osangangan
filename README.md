@@ -2,6 +2,12 @@
 
 Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan (Nigeria).
 
+As a curatorial staff in various capacities over the past few years, I have worked closely with artists, writers, and filmmakers across exhibitions and gallery programming, film screenings, workshops, open studios, artist talks, and so on.
+
+My background as a freelance editor, together with a 2025 internship at Cassava Republic Press, have also given me experience in managing publishing workflows, from manuscript development to final production and marketing.
+
+I am currently undergoing BSW Social Work training at the University of Ibadan.
+
 <!--
 **osangangan/osangangan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
