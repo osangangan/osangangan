@@ -43,7 +43,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
   * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
-* **[The Party of God]()**
+* **[The Party of God](https://drive.google.com/file/d/1iYkN3oyoxbL1jFqyOsA4Z2w0VnUvt-Uc/view?usp=sharing)**
   * Creative review of Elnathan John's *Born on a Tuesday*, originally written as a blog post for *Cassava Republic Press* (2025)
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
   * Creative nonfiction piece published on *Brittle Paper* (2020)
