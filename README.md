@@ -43,7 +43,7 @@ But perhaps the more important question is who? Who really bears the cost of all
   * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
 * **[The Party of God](https://drive.google.com/file/d/1iYkN3oyoxbL1jFqyOsA4Z2w0VnUvt-Uc/view?usp=sharing)**
   * Creative review of Elnathan John's *Born on a Tuesday*, originally written as a blog post for *Cassava Republic Press* (2025)
-* **[In Situ: An Antithesis of Catharsis](https://www.africanwriter.com/wp-content/uploads/2021/01/AfricanWriterSpecial1lo-res.pdf)  
+* **[In Situ: An Antithesis of Catharsis](https://www.africanwriter.com/wp-content/uploads/2021/01/AfricanWriterSpecial1lo-res.pdf)**  
   * Creative nonfiction piece published in *African Writer Magazine*'s Special Issue #1, edited by TJ Benson and Nadia Alexis (2021)
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
   * Creative nonfiction piece published on *Brittle Paper* (2020)
@@ -63,7 +63,7 @@ A few self-led and collaborative creative projects outside of just creative writ
   * Street photography of Mokola Area of Ibadan metropolis (2025)
 * **[The Heat!](https://drive.google.com/drive/folders/1ce3nT9GulnMhNBmlBbdg8iNs0cP6LLiz?usp=sharing)**  
   * Multimedia project abstracting The Market and theorising its impact as a global and local principle in our world today (2024)  
-* **[Glass + Seduction Art Zine](https://drive.google.com/file/d/18FjZXgKtAz0d8O2v6kMKdYvKvATcWaEs/view?usp=sharing)**
+* **[Glass + Seduction](https://drive.google.com/file/d/18FjZXgKtAz0d8O2v6kMKdYvKvATcWaEs/view?usp=sharing)**
   * PDF Art Zine designed and produced by me, and published by Agbowó as part of my larger project *SÉDUCTION du VERRE* (2020)
 
 ---
