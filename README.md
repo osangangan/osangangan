@@ -3,7 +3,7 @@ Writer, curator, editor.
 
 ### Selected Poetry
 
-*Valley of Supplication* (2026) 
+*Valley of Supplication* (2026)  
 A steep path has brought me here,  
 to this gully of fine sand and debris, wet and motile  
 from the persistence of the rains. It is early September;  
@@ -27,7 +27,7 @@ offspring of heaven and earth.
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
 
-*Sober Trance* (2025) 
+*Sober Trance* (2025)  
 Somewhere within this litter of homesteads, churches  
 and corn fruiting in September’s well-watered soil,  
 a drummer  
