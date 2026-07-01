@@ -45,8 +45,8 @@ Published commentary, creative nonfiction, and music journalism.
 
 ### Projects
 
-* **[Episodic Sound-based Artistic Project](https://audio.com/osangangan)**
-  * Audio archive, soundscapes, and spoken-word recitations.
+* **[Sound-based Artistic Project](https://audio.com/osangangan)**
+  * Edpisodiic audio archive, soundscapes, and spoken-word recitations.
  
 ---
 
