@@ -11,25 +11,6 @@ A collection of my published poetry and verse.
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
 
-#### Misapprehension
-Christianah, how lacking in colour everything had suddenly become when I heard it said you had gone. In that moment, I recall thinking how your indifference would not anymore be sole basis for the distance between us. That there would be terrestrial space to reckon with now. Yet, just past noon and here we are, face to face again in this hostel, with the selfsame indifference, the air between us, still.
-
-#### Christianah
-Drawn to my companion, I seek  
-synchrony from a half-instinctive glance,  
-hands-free interaction,  
-tethering by silence and distance.  
-
-#### Terminal
-The brown tracks are going  
-nowhere.  
-They have arrived  
-at the train station.  
-Gathered in the waiting halls  
-are insects.  
-Everything—  
-Everyone here is buzzing.  
-
 #### Recreation
 As there was no lizard  
 to disembowel for fun,  
@@ -47,17 +28,15 @@ beats the face of his drum loose
 with measured passion.  
 
 His music is a brook to my deer,  
-pleasure district  
-with danger of excess and though my body desires  
+pleasure district without danger of excess,
+but though my body desires  
 to plagiarise the pace of that faraway percussion  
 with dancing,  
-yet attention stays with my breathing,  
-that this same body  
+yet i stay with my breathing,  
+that this body  
 might stretch and burst, become lake rippling gently,  
-repeatedly,  
-at the dewy touch  
-of a thoughtful,  
-rhythmic and greater sky.  
+repeatedly, at the dewy touch  
+of a thoughtful, rhythmic and greater sky.  
 
 #### Between Us
 There is no more  
@@ -83,7 +62,7 @@ open up
 here's an offering  
 sweet for breath  
 i watch you  
-let the breeze wash you  
+let the breeze in 
 then  
 i breathe too.  
 
@@ -100,7 +79,7 @@ discontinuous stretches of farmland blossom—
 grains, herbs and roots, all yielding positive ROI.  
 And what about me? Shall Sharon not also fructify?  
 Indeed, he shall. To which my praying voice rises  
-in passionate tongues, as a leaf descends from a tree,  
+in passionate glossolalia, as a leaf descends from a tree,  
 into this well-worn path of water and silt, serpentine  
 offspring of heaven and earth.
 
