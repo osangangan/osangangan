@@ -1,7 +1,7 @@
 ## Iretomiwa Sharon Omodeinde
 Writer, curator, editor.
 
-### Selected Poetry
+### Poems
 
 *Valley of Supplication* (2026)  
 A steep path has brought me here,  
@@ -25,10 +25,12 @@ offspring of heaven and earth.
 * **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
   * Published in *Praxis Magazine for Arts & Literature* (2021)
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
-  * Published in *Stone of Madness Press* (2022)  
+  * Published in *Stone of Madness Press* (2022)
 
-### Selected Essays
-A collection of my published commentary, creative nonfiction, and music journalism.
+---
+
+### Essays
+Published commentary, creative nonfiction, and music journalism.
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
   * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
@@ -39,7 +41,14 @@ A collection of my published commentary, creative nonfiction, and music journali
 * **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
   * Music promotional article written for *The Urban Central* (2021)
 
-### Mixed Media
+---
+
+### Projects
+
+* **[Episodic Sound-based Artistic Project](https://audio.com/osangangan)**
+  * Audio archive, soundscapes, and spoken-word recitations.
+ 
+---
 
 ### Professional History
 Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan (Nigeria).
