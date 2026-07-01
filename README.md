@@ -25,23 +25,7 @@ offspring of heaven and earth.
 * **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
   * Published in *Praxis Magazine for Arts & Literature* (2021)
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
-  * Published in *Stone of Madness Press* (2022)
-
-*Sober Trance* (2025)  
-Somewhere within this litter of homesteads, churches  
-and corn fruiting in September’s well-watered soil,  
-a drummer  
-beats the face of his drum loose  
-with measured passion.  
-His music is a brook to my deer,  
-pleasure district without danger of excess, 
-and though my body desires  
-to plagiarise the pace of that faraway percussion  
-with dancing,  
-yet i stay with my breath, that this body  
-might stretch and burst, become lake rippling gently,  
-repeatedly, at the dewy touch  
-of a thoughtful, rhythmic and greater sky.  
+  * Published in *Stone of Madness Press* (2022)  
 
 ### Selected Essays
 A collection of my published commentary, creative nonfiction, and music journalism.
