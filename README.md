@@ -1,5 +1,5 @@
 ## Iretomiwa Sharon Omodeinde
-Writer, curator, editor.
+writer, curator, editor.
 
 ---
 
