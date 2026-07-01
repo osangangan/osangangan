@@ -35,8 +35,7 @@ beats the face of his drum loose
 with measured passion.  
 
 His music is a brook to my deer,  
-pleasure district without danger of excess,
-and though my body desires  
+pleasure district without danger of excess, and though my body desires  
 to plagiarise the pace of that faraway percussion  
 with dancing,  
 yet i stay with my breath, that this body  
