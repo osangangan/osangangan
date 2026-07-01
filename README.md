@@ -2,14 +2,7 @@
 ## Writer, curator, editor.
 
 ### Selected Poetry
-A collection of my published poetry and verse.
-
-* **[From Childhood We’ve Known](https://rustandmoth.com/work/from-childhood-weve-known/)**
-  * Published in *Rust and Moth* (2020)
-* **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
-  * Published in *Praxis Magazine for Arts & Literature* (2021)
-* **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
-  * Published in *Stone of Madness Press* (2022)
+A collection of my published and unpublished poems.
 
 #### Recreation
 As there was no lizard  
@@ -83,6 +76,13 @@ in passionate glossolalia, as a leaf descends from a tree,
 into this well-worn path of water and silt, serpentine  
 offspring of heaven and earth.
 
+* **[From Childhood We’ve Known](https://rustandmoth.com/work/from-childhood-weve-known/)**
+  * Published in *Rust and Moth* (2020)
+* **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
+  * Published in *Praxis Magazine for Arts & Literature* (2021)
+* **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
+  * Published in *Stone of Madness Press* (2022)
+
 ### Selected Essays
 A collection of my published commentary, creative nonfiction, and music journalism.
 
@@ -91,7 +91,7 @@ A collection of my published commentary, creative nonfiction, and music journali
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
   * Creative nonfiction piece published on *Brittle Paper* (2020)
 * **[Qhairo: On the Rise](https://www.thelineofbestfit.com/features/interviews/qhairo-on-the-rise)**
-  *Magazine feature article written for *The Line of Best Fit* (2020)
+  * Magazine feature article written for *The Line of Best Fit* (2020)
 * **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
   * Music promotional article written for *The Urban Central* (2021)
 
