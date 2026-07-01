@@ -49,6 +49,7 @@ Published commentary, creative nonfiction, and music journalism.
 * **[Sound-based Artistic Project](https://audio.com/osangangan)**
   * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
 * **[Photos by Sharon](https://drive.google.com/drive/folders/1RyP_bK3iDaHJzzQEfslnFEA_0RIz-27K?usp=drive_link)**
+  * Street photography of Mokola Area of Ibadan metropolis (2025)
 * **[Glass + Seduction Art Zine]()** 
 
 ---
