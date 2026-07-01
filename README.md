@@ -46,8 +46,10 @@ Published commentary, creative nonfiction, and music journalism.
 ### Projects
 
 * **[Sound-based Artistic Project](https://audio.com/osangangan)**
-  * Edpisodiic audio archive, soundscapes, and spoken-word recitations.
- 
+  * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
+* **[Photos by Sharon](https://drive.google.com/drive/folders/1RyP_bK3iDaHJzzQEfslnFEA_0RIz-27K?usp=drive_link)**
+* **[Glass + Seduction Art Zine]()** 
+
 ---
 
 ### Professional History
