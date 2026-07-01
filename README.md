@@ -55,7 +55,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 ---
 
 ### Projects
-A few self-led and collaborative creative projects outside of just creative writing.
+A few self-led and collaborative creative projects outside of hardcore creative writing.
 
 * **[Sound-based Artistic Project](https://audio.com/osangangan)**
   * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
