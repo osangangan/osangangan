@@ -38,7 +38,6 @@ offspring of heaven and earth.
 
 But perhaps the more important question is who? Who really bears the cost of all of this excess?
 
-
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
   * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
 * **[The Party of God](https://drive.google.com/file/d/1iYkN3oyoxbL1jFqyOsA4Z2w0VnUvt-Uc/view?usp=sharing)**
@@ -58,13 +57,13 @@ But perhaps the more important question is who? Who really bears the cost of all
 A few self-led and collaborative creative projects outside of hardcore creative writing.
 
 * **[Audio Broadcast Project](https://audio.com/osangangan)**
-  * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
+  * Episodic audio archive, soundscapes, and spoken-word recitations (2025-Present)
 * **[Photos by Sharon](https://drive.google.com/drive/folders/1RyP_bK3iDaHJzzQEfslnFEA_0RIz-27K?usp=drive_link)**
   * Street photography of Mokola Area of Ibadan metropolis (2025)
 * **[The Heat!](https://drive.google.com/drive/folders/1ce3nT9GulnMhNBmlBbdg8iNs0cP6LLiz?usp=sharing)**  
   * Multimedia project abstracting The Market and theorising its impact as a global and local principle in our world today (2024)  
 * **[Glass + Seduction](https://drive.google.com/file/d/18FjZXgKtAz0d8O2v6kMKdYvKvATcWaEs/view?usp=sharing)**
-  * PDF Art Zine designed and produced by me, and published by Agbowó as part of my larger project *SÉDUCTION du VERRE* (2020)
+  * PDF art zine designed and produced by me, and published by Agbowó as part of my larger project *SÉDUCTION du VERRE* (2020)
 
 ---
 
