@@ -1,11 +1,9 @@
 ## Iretomiwa Sharon Omodeinde
-
-#### Writer, curator, editor.
+Writer, curator, editor.
 
 ### Selected Poetry
-A few of my published and unpublished poems.
 
-#### Valley of Supplication
+*Valley of Supplication* (2026)
 A steep path has brought me here,  
 to this gully of fine sand and debris, wet and motile  
 from the persistence of the rains. It is early September;  
@@ -29,7 +27,7 @@ offspring of heaven and earth.
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
 
-#### Sober Trance
+*Sober Trance* (2025)
 Somewhere within this litter of homesteads, churches  
 and corn fruiting in September’s well-watered soil,  
 a drummer  
@@ -37,10 +35,11 @@ beats the face of his drum loose
 with measured passion.  
 
 His music is a brook to my deer,  
-pleasure district without danger of excess, and though my body desires  
+pleasure district without danger of excess,
+and though my body desires  
 to plagiarise the pace of that faraway percussion  
 with dancing,  
-yet i stay with my breathe, that this body  
+yet i stay with my breath, that this body  
 might stretch and burst, become lake rippling gently,  
 repeatedly, at the dewy touch  
 of a thoughtful, rhythmic and greater sky.  
@@ -56,6 +55,8 @@ A collection of my published commentary, creative nonfiction, and music journali
   * Magazine feature article written for *The Line of Best Fit* (2020)
 * **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
   * Music promotional article written for *The Urban Central* (2021)
+
+### Mixed Media
 
 ### Professional History
 Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan (Nigeria).
