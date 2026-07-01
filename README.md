@@ -45,6 +45,7 @@ Published commentary, creative nonfiction, and music journalism.
 ---
 
 ### Projects
+A few self-led and collaborative creative projects outside of writing.
 
 * **[Sound-based Artistic Project](https://audio.com/osangangan)**
   * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
@@ -62,6 +63,11 @@ As a curatorial staff in various capacities over the past few years, I have work
 My background as a freelance editor, together with a 2025 internship at Cassava Republic Press, have also given me experience in managing publishing workflows, from manuscript development to final production and marketing.
 
 I am currently undergoing BSW Social Work training at the University of Ibadan.
+
+---
+
+### Contact
+osangangan@gmail.com
 
 <!--
 **osangangan/osangangan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
