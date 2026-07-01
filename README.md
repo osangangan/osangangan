@@ -1,6 +1,7 @@
 ## Iretomiwa Sharon Omodeinde
 Writer, curator, editor.
 
+
 ### Poems
 
 *Valley of Supplication* (2026)  
@@ -20,12 +21,12 @@ in passionate tongues, as a leaf descends from a tree,
 into this well-worn path of water and silt, serpentine  
 offspring of heaven and earth.
 
-* **[From Childhood We’ve Known](https://rustandmoth.com/work/from-childhood-weve-known/)**
-  * Published in *Rust and Moth* (2020)
 * **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
   * Published in *Praxis Magazine for Arts & Literature* (2021)
 * **[Banquet After the Rain](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
+* **[From Childhood We’ve Known](https://rustandmoth.com/work/from-childhood-weve-known/)**
+  * Published in *Rust and Moth* (2020)  
 
 ---
 
