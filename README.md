@@ -1,8 +1,8 @@
 ## Iretomiwa Sharon Omodeinde
-## Writer, curator, editor.
+### Writer, curator, editor.
 
 ### Selected Poetry
-A collection of my published and unpublished poems.
+A few of my published and unpublished poems.
 
 #### Recreation
 As there was no lizard  
@@ -25,8 +25,7 @@ pleasure district without danger of excess,
 but though my body desires  
 to plagiarise the pace of that faraway percussion  
 with dancing,  
-yet i stay with my breathing,  
-that this body  
+yet i stay with my breathe, that this body  
 might stretch and burst, become lake rippling gently,  
 repeatedly, at the dewy touch  
 of a thoughtful, rhythmic and greater sky.  
