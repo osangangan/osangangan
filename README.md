@@ -1,62 +1,9 @@
 ## Iretomiwa Sharon Omodeinde
-### Writer, curator, editor.
+
+#### Writer, curator, editor.
 
 ### Selected Poetry
 A few of my published and unpublished poems.
-
-#### Recreation
-As there was no lizard  
-to disembowel for fun,  
-under a neem tree I sat,  
-watching an egret perched  
-in the sun. The shade  
-being cool water to my pores  
-and a grace, I let out a sigh.  
-
-#### Sober Trance
-Somewhere within this litter of homesteads, churches  
-and corn fruiting in September’s well-watered soil,  
-a drummer  
-beats the face of his drum loose  
-with measured passion.  
-
-His music is a brook to my deer,  
-pleasure district without danger of excess,
-but though my body desires  
-to plagiarise the pace of that faraway percussion  
-with dancing,  
-yet i stay with my breathe, that this body  
-might stretch and burst, become lake rippling gently,  
-repeatedly, at the dewy touch  
-of a thoughtful, rhythmic and greater sky.  
-
-#### Between Us
-There is no more  
-standing on ceremony  
-all the floors are darkness  
-and swampy  
-and what happened  
-to the furniture-altar-bed  
-who cultured  
-such a fine garden of mould  
-on our clothes  
-nothing has been spared  
-the house is inundated  
-the doors are locked  
-we are in with the fragrance  
-sense organs suffused  
-without buffer  
-i sneeze into you  
-you sneeze back  
-holding my hands  
-we walk to the window  
-open up  
-here's an offering  
-sweet for breath  
-i watch you  
-let the breeze in 
-then  
-i breathe too.  
 
 #### Valley of Supplication
 A steep path has brought me here,  
@@ -81,6 +28,23 @@ offspring of heaven and earth.
   * Published in *Praxis Magazine for Arts & Literature* (2021)
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
+
+#### Sober Trance
+Somewhere within this litter of homesteads, churches  
+and corn fruiting in September’s well-watered soil,  
+a drummer  
+beats the face of his drum loose  
+with measured passion.  
+
+His music is a brook to my deer,  
+pleasure district without danger of excess,
+but though my body desires  
+to plagiarise the pace of that faraway percussion  
+with dancing,  
+yet i stay with my breathe, that this body  
+might stretch and burst, become lake rippling gently,  
+repeatedly, at the dewy touch  
+of a thoughtful, rhythmic and greater sky.  
 
 ### Selected Essays
 A collection of my published commentary, creative nonfiction, and music journalism.
