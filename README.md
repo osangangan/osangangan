@@ -24,7 +24,7 @@ offspring of heaven and earth.
   * Published in *Rust and Moth* (2020)
 * **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
   * Published in *Praxis Magazine for Arts & Literature* (2021)
-* **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
+* **[Banquet After the Rain](https://stoneofmadnesspress.com/xaron-ire)**
   * Published in *Stone of Madness Press* (2022)
 
 ---
