@@ -1,6 +1,7 @@
 ## Iretomiwa Sharon Omodeinde
 Writer, curator, editor.
 
+---
 
 ### Poems
 
