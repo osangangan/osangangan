@@ -1,27 +1,120 @@
-Iretomiwa Sharon Omodeinde
-Writer, curator, editor.
+## Iretomiwa Sharon Omodeinde
+## Writer, curator, editor.
 
 ### Selected Poetry
 A collection of my published poetry and verse.
 
 * **[From Childhood We’ve Known](https://rustandmoth.com/work/from-childhood-weve-known/)**
-  * Published in *Rust and Moth*
+  * Published in *Rust and Moth* (2020)
 * **[Two Poems](https://praxismagonline.com/xaron-ire-two-poems-praxis-magazine-for-arts-literature/)**
-  * Published in *Praxis Magazine for Arts & Literature*
+  * Published in *Praxis Magazine for Arts & Literature* (2021)
 * **[Poetry Feature](https://stoneofmadnesspress.com/xaron-ire)**
-  * Published in *Stone of Madness Press*
+  * Published in *Stone of Madness Press* (2022)
+
+#### Misapprehension
+Christianah, how lacking in colour everything had suddenly become when I heard it said you had gone. In that moment, I recall thinking how your indifference would not anymore be sole basis for the distance between us. That there would be terrestrial space to reckon with now. Yet, just past noon and here we are, face to face again in this hostel, with the selfsame indifference, the air between us, still.
+
+#### Christianah
+Drawn to my companion, I seek  
+synchrony from a half-instinctive glance,  
+hands-free interaction,  
+tethering by silence and distance.  
+
+#### Terminal
+The brown tracks are going  
+nowhere.  
+They have arrived  
+at the train station.  
+Gathered in the waiting halls  
+are insects.  
+Everything—  
+Everyone here is buzzing.  
+
+#### Recreation
+As there was no lizard  
+to disembowel for fun,  
+under a neem tree I sat,  
+watching an egret perched  
+in the sun. The shade  
+being cool water to my pores  
+and a grace, I let out a sigh.  
+
+#### Sober Trance
+Somewhere within this litter of homesteads, churches  
+and corn fruiting in September’s well-watered soil,  
+a drummer  
+beats the face of his drum loose  
+with measured passion.  
+
+His music is a brook to my deer,  
+pleasure district  
+with danger of excess and though my body desires  
+to plagiarise the pace of that faraway percussion  
+with dancing,  
+yet attention stays with my breathing,  
+that this same body  
+might stretch and burst, become lake rippling gently,  
+repeatedly,  
+at the dewy touch  
+of a thoughtful,  
+rhythmic and greater sky.  
+
+#### Between Us
+There is no more  
+standing on ceremony  
+all the floors are darkness  
+and swampy  
+and what happened  
+to the furniture-altar-bed  
+who cultured  
+such a fine garden of mould  
+on our clothes  
+nothing has been spared  
+the house is inundated  
+the doors are locked  
+we are in with the fragrance  
+sense organs suffused  
+without buffer  
+i sneeze into you  
+you sneeze back  
+holding my hands  
+we walk to the window  
+open up  
+here's an offering  
+sweet for breath  
+i watch you  
+let the breeze wash you  
+then  
+i breathe too.  
+
+#### Valley of Supplication
+A steep path has brought me here,  
+to this gully of fine sand and debris, wet and motile  
+from the persistence of the rains. It is early September;  
+I jump on rocks with prayer in my mouth,  
+gargling, while the runoff, thick and bulimic,  
+ingests and throws up soil, as a matter of habit.  
+Where the water spirits to, I wonder if I can go.  
+On both sides of this channel,  
+discontinuous stretches of farmland blossom—  
+grains, herbs and roots, all yielding positive ROI.  
+And what about me? Shall Sharon not also fructify?  
+Indeed, he shall. To which my praying voice rises  
+in passionate tongues, as a leaf descends from a tree,  
+into this well-worn path of water and silt, serpentine  
+offspring of heaven and earth.
 
 ### Selected Essays
 A collection of my published commentary, creative nonfiction, and music journalism.
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
-  * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's Embracing Multidimensionality (2025)*
+  * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
-  * Creative nonfiction piece published on Brittle Paper (2020)*
+  * Creative nonfiction piece published on *Brittle Paper* (2020)
 * **[Qhairo: On the Rise](https://www.thelineofbestfit.com/features/interviews/qhairo-on-the-rise)**
-  *Magazine feature article written for The Line of Best Fit, UK (2020)*
+  *Magazine feature article written for *The Line of Best Fit* (2020)
 * **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
-  * Music promotional article written for The Urban Central, NG (2020)*
+  * Music promotional article written for *The Urban Central* (2021)
 
 ### Professional History
 Writer, curator, editor, and arts organiser with experience across African Artists' Foundation, LagosPhoto Festival, Lianna Foundation, Cassava Republic Press, and independent arts and culture projects in Lagos and Ibadan (Nigeria).
