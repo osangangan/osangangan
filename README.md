@@ -57,7 +57,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 ### Projects
 A few self-led and collaborative creative projects outside of hardcore creative writing.
 
-* **[Sound-based Artistic Project](https://audio.com/osangangan)**
+* **[Audio Broadcast Project](https://audio.com/osangangan)**
   * Edpisodic audio archive, soundscapes, and spoken-word recitations (2025-2026)
 * **[Photos by Sharon](https://drive.google.com/drive/folders/1RyP_bK3iDaHJzzQEfslnFEA_0RIz-27K?usp=drive_link)**
   * Street photography of Mokola Area of Ibadan metropolis (2025)
