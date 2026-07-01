@@ -18,7 +18,7 @@ discontinuous stretches of farmland blossom—
 grains, herbs and roots, all yielding positive ROI.  
 And what about me? Shall Sharon not also fructify?  
 Indeed, he shall. To which my praying voice rises  
-in passionate glossolalia, as a leaf descends from a tree,  
+in passionate tongues, as a leaf descends from a tree,  
 into this well-worn path of water and silt, serpentine  
 offspring of heaven and earth.
 
@@ -37,8 +37,7 @@ beats the face of his drum loose
 with measured passion.  
 
 His music is a brook to my deer,  
-pleasure district without danger of excess,
-but though my body desires  
+pleasure district without danger of excess, and though my body desires  
 to plagiarise the pace of that faraway percussion  
 with dancing,  
 yet i stay with my breathe, that this body  
