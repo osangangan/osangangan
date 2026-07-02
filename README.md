@@ -41,7 +41,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
   * Creative nonfiction piece earlier published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
 * **[The Party of God](https://drive.google.com/file/d/1iYkN3oyoxbL1jFqyOsA4Z2w0VnUvt-Uc/view?usp=sharing)**
-  * Creative review of Elnathan John's *Born on a Tuesday*, originally written as a blog post for *Cassava Republic Press* (2025)
+  * Creative review of Elnathan John's *Born on a Tuesday*, originally written as a blog post draft for *Cassava Republic Press* (2025)
 * **[In Situ: An Antithesis of Catharsis](https://www.africanwriter.com/wp-content/uploads/2021/01/AfricanWriterSpecial1lo-res.pdf)**  
   * Creative nonfiction piece published in *African Writer Magazine*'s Special Issue #1, edited by TJ Benson and Nadia Alexis (2021)
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
