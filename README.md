@@ -47,7 +47,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 * **[A Journey in Desire](https://brittlepaper.com/2020/03/a-journey-in-desire-iretomiwa-xaron-nonfiction/)**
   * Creative nonfiction piece published on *Brittle Paper* (2020)
 * **[Qhairo: On the Rise](https://www.thelineofbestfit.com/features/interviews/qhairo-on-the-rise)**
-  * Magazine feature article written for *The Line of Best Fit* (2020)
+  * Music magazine feature article written for *The Line of Best Fit* (2020)
 * **[Playlist: Neon Ritual](https://urbancentral.medium.com/neon-ritual-6b709687980f)**
   * Music promotional article written for *The Urban Central* (2021)
 
