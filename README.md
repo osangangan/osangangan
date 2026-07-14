@@ -80,12 +80,12 @@ I am currently undergoing BSW Social Work training at the University of Ibadan.
 
 ---
 
-### [📄 Download my Curatorial Resume](./Updated%20Curator%20Resume.pdf)
+### Contact
+osangangan@gmail.com
 
 ---
 
-### Contact
-osangangan@gmail.com
+### [📄 Download my Curatorial Resume](./Updated%20Curator%20Resume.pdf)
 
 <!--
 **osangangan/osangangan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
