@@ -5,7 +5,8 @@ writer, curator, editor.
 
 ### Poems
 
-*Valley of Supplication* (2023)  
+*Valley of Supplication* (2023)
+
 A steep path has brought me here,  
 to this gully of fine sand and debris, wet and motile  
 from the persistence of the rains. It is early September;  
@@ -33,10 +34,9 @@ offspring of heaven and earth.
 
 ### Essays
 
-*Excerpt of AJE!* (2024)  
-...In this world of warriors and financiers, everyone is a potential target, a potential user, and, for those bold enough to stake such a claim, potential sole heir to all of creation. It is not an exaggeration to declare that nearly every mature human on the planet now aspires to an infallible position within the domain of the market. Nearly all of us seek the favour, and at the same time, domination of the market. Today, all roads lead not to Rome, but to the marketplace that has evolved beyond place. But what is it that we seek there, here, in the marketplace that has become our world? Is it profitable exchange? Or is it a miracle? A miracle of profits that never cease to rise. That year on year break the bank. Riches that pile up forever…
+*Excerpt of What World? And in Whose Hands? (2025)*
 
-But perhaps the more important question is who? Who really bears the cost of all of this excess?
+These debates (about female agency within Islam) aren’t confined to academic texts, theological treatises, policy papers, or activist speeches. They are lived out by Muslim women every day, within and outside the influence of male authority. Although this is not the book’s primary focus, The World Was In Our Hands brings to light multiple narratives of women exercising agency both at proxy and at a distance from (and in opposition to) patriarchal power.
 
 * **[Dreaming of Connection](https://drive.google.com/file/d/1Y4_ehjkK1GxZpVvKwfha3J0JBaA3es3l/view?usp=sharing)**
   * Creative nonfiction piece published as an epilogue to Patrick Odimnfe's *Embracing Multidimensionality* (2025)
@@ -57,6 +57,12 @@ But perhaps the more important question is who? Who really bears the cost of all
 
 ### Projects
 A few self-led and collaborative creative projects outside of hardcore creative writing.
+
+*Excerpt of AJE!* (2024)  
+
+...In this world of warriors and financiers, everyone is a potential target, a potential user, and, for those bold enough to stake such a claim, potential sole heir to all of creation. It is not an exaggeration to declare that nearly every mature human on the planet now aspires to an infallible position within the domain of the market. Nearly all of us seek the favour, and at the same time, domination of the market. Today, all roads lead not to Rome, but to the marketplace that has evolved beyond place. But what is it that we seek there, here, in the marketplace that has become our world? Is it profitable exchange? Or is it a miracle? A miracle of profits that never cease to rise. That year on year break the bank. Riches that pile up forever…
+
+But perhaps the more important question is who? Who really bears the cost of all of this excess?
 
 * **[Audio Broadcast Project](https://audio.com/osangangan)**
   * Episodic audio archive, soundscapes, and spoken-word recitations (2025-Present)
