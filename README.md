@@ -56,11 +56,10 @@ These debates (about female agency within Islam) aren’t confined to academic t
 ---
 
 ### Projects
-A few self-led and collaborative creative projects outside of hardcore creative writing.
 
 *Excerpt of AJE!* (2024)  
 
-...In this world of warriors and financiers, everyone is a potential target, a potential user, and, for those bold enough to stake such a claim, potential sole heir to all of creation. It is not an exaggeration to declare that nearly every mature human on the planet now aspires to an infallible position within the domain of the market. Nearly all of us seek the favour, and at the same time, domination of the market. Today, all roads lead not to Rome, but to the marketplace that has evolved beyond place. But what is it that we seek there, here, in the marketplace that has become our world? Is it profitable exchange? Or is it a miracle? A miracle of profits that never cease to rise. That year on year break the bank. Riches that pile up forever…
+In this world of warriors and financiers, everyone is a potential target, a potential user, and, for those bold enough to stake such a claim, potential sole heir to all of creation. It is not an exaggeration to declare that nearly every mature human on the planet now aspires to an infallible position within the domain of the market. Nearly all of us seek the favour, and at the same time, domination of the market. Today, all roads lead not to Rome, but to the marketplace that has evolved beyond place. But what is it that we seek there, here, in the marketplace that has become our world? Is it profitable exchange? Or is it a miracle? A miracle of profits that never cease to rise. That year on year break the bank. Riches that pile up forever...
 
 But perhaps the more important question is who? Who really bears the cost of all of this excess?
 
