@@ -5,7 +5,7 @@ writer, curator, editor.
 
 ### Poems
 
-*Valley of Supplication* (2026)  
+*Valley of Supplication* (2023)  
 A steep path has brought me here,  
 to this gully of fine sand and debris, wet and motile  
 from the persistence of the rains. It is early September;  
