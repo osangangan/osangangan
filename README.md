@@ -70,7 +70,7 @@ But perhaps the more important question is who? Who really bears the cost of all
 * **[The Heat!](https://drive.google.com/drive/folders/1ce3nT9GulnMhNBmlBbdg8iNs0cP6LLiz?usp=sharing)**  
   * Multimedia project abstracting The Market and theorising its impact as a global and local principle in our world today (2024)  
 * **[Glass + Seduction](https://drive.google.com/file/d/18FjZXgKtAz0d8O2v6kMKdYvKvATcWaEs/view?usp=sharing)**
-  * PDF art zine designed and produced by Sharon, and published by Agbowó as part of my larger project *SÉDUCTION du VERRE* (2020)
+  * PDF art zine designed and produced by Sharon, and published by Agbowó as part of a larger project also by Sharon, *SÉDUCTION du VERRE* (2020)
 
 ---
 
