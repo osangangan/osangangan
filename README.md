@@ -90,7 +90,7 @@ osangangan@gmail.com
 
 ---
 
-#### [📄 Download my curatorial resume](./Updated%20Curator%20Resume.pdf)
+#### [📄 Download my curatorial resume](./Iretomiwa%20Sharon%20Omodeinde's%20Resume.pdf)
 
 <!--
 **osangangan/osangangan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
