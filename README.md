@@ -1,5 +1,5 @@
 ## Iretomiwa Sharon Omodeinde
-writer, curator, artist, researcher.
+writer, artist, researcher, founder of 2001 Collective.
 
 ---
 
@@ -63,6 +63,8 @@ In this world of warriors and financiers, everyone is a potential target, a pote
 
 But perhaps the more important question is who? Who really bears the cost of all of this excess?
 
+* **[A Safe Passage Project](https://www.youtube.com/@DreamingNewWorlds)**
+  * Project on free mobility and indigenous knowledge, funded by Goethe-Institut as part of the Dreaming New Worlds program (2026)
 * **[Audio Broadcast Project](https://audio.com/osangangan)**
   * Episodic audio archive, soundscapes, and spoken-word recitations (2025-Present)
 * **[Photos by Sharon](https://drive.google.com/drive/folders/1RyP_bK3iDaHJzzQEfslnFEA_0RIz-27K?usp=drive_link)**
